@@ -1,28 +1,51 @@
-# Educative.io Coupon Code & Discount
-
-[![Educative-Unlimited-Excel-with-AI-Powered-Learning-04-06-2025_12_02_AM](https://github.com/user-attachments/assets/4fdd895f-e3b7-43ff-a197-90f58f1d092d)](https://www.educative.io/unlimited?aff=BbLr)
+# Educative.io Coupon Code & Discount (51% Off)
 
 Claim the latest [Educative coupon codes](https://www.educative.io/unlimited?aff=BbLr) and **save 51% on your plan**.
 
-[![Discount button](https://github.com/user-attachments/assets/8f800b8f-9b97-4110-bcae-62ceaa9d3227)](https://www.educative.io/unlimited?aff=BbLr)
+[![Discount button](https://github.com/user-attachments/assets/9a606b6f-c796-4d96-bad1-e3771495cfcc)](https://www.educative.io/unlimited?aff=BbLr)
 
-## 51% Off On Educative Standard
+## 51% Off Educative Coupon For Standard Plan
 
 Get **51% off the Educative Standard Plan**. You’ll pay only $13 each month, billed yearly at $149 instead of $298. This deal gives you full access to over 900 hands-on courses, completion certificates, AI-powered learning features, and the Educative Newsletter. It's a limited-time offer to help you learn faster and boost your skills for half the price.
 
-[![Discount button](https://github.com/user-attachments/assets/8f800b8f-9b97-4110-bcae-62ceaa9d3227)](https://www.educative.io/unlimited?aff=BbLr)
+[![Discount button](https://github.com/user-attachments/assets/9a606b6f-c796-4d96-bad1-e3771495cfcc)](https://www.educative.io/unlimited?aff=BbLr)
 
 ## 50% Off On Educative Premium Plan
 
 Get **50% off the Educative Premium Plan** where you pay just $17 per month when billed annually at $199 instead of $398. This offer includes all the Standard Plan features. You also gain access to over 310 real-world projects, personalised learning paths, monthly AI mock interviews, and tailored interview prep. It’s a great way to boost your skills and get job-ready, now at half the cost.
 
-[![Discount button](https://github.com/user-attachments/assets/8f800b8f-9b97-4110-bcae-62ceaa9d3227)](https://www.educative.io/unlimited?aff=BbLr)
+[![Discount button](https://github.com/user-attachments/assets/9a606b6f-c796-4d96-bad1-e3771495cfcc)](https://www.educative.io/unlimited?aff=BbLr)
 
 ## 50% Off On The Educative Premium Plus Plan
 
 Get 50% off the Educative Premium Plus Plan. Now, pay just $21 per month, billed yearly at $249 instead of $498. This plan includes everything in Premium. You also get access to over 220 AWS Cloud Labs and seven AI mock interviews each month. It’s the best learning experience for serious tech learners, now at half the price.
 
-[![Discount button](https://github.com/user-attachments/assets/8f800b8f-9b97-4110-bcae-62ceaa9d3227)](https://www.educative.io/unlimited?aff=BbLr)
+[![Discount button](https://github.com/user-attachments/assets/9a606b6f-c796-4d96-bad1-e3771495cfcc)](https://www.educative.io/unlimited?aff=BbLr)
+
+## [30% OFF] Educative.io Summer Sale – Lifetime Discount!
+
+Get 30% off for life on Educative’s premium plans.
+
+* Plus, use code SAVEIT20 at checkout for an extra 20% off.
+* Works on all premium subscriptions.
+* Limited-time deal – don’t miss out!
+
+[![Discount button](https://github.com/user-attachments/assets/9a606b6f-c796-4d96-bad1-e3771495cfcc)](https://www.educative.io/unlimited?aff=BbLr)
+
+## How to Get 80% Off on Educative Subscription Plans
+
+Want a huge discount on Educative? Here's how to save **up to 80%**:
+
+* Visit Educative.io – some discounts apply automatically.
+* Use **coupon code SAVEIT20** at checkout for **extra 20% off**.
+* You may also get a **30% regional discount**, if eligible.
+* Don’t miss the **29.47% AI April Sale**—it stacks with other deals.
+
+[![Discount button](https://github.com/user-attachments/assets/9a606b6f-c796-4d96-bad1-e3771495cfcc)](https://www.educative.io/unlimited?aff=BbLr)
+
+## Educative Memorial Day Sale – Flat 33% OFF
+
+Enjoy a 33% discount on all Educative.io subscriptions and courses during their special Memorial Day Sale! Learn coding, web development, data science, and more with easy-to-follow tutorials.
 
 ## Latest Educative Coupons
 
@@ -32,13 +55,9 @@ Here’s a list of the best coupon codes for Educative right now. These codes of
 
 Save 72% on Educative.io's Standard, Premium, and Premium Plus plans! Get access to high-quality courses and boost your skills at a fraction of the cost. Don't miss this limited-time offer!
 
-[![Discount button](https://github.com/user-attachments/assets/8f800b8f-9b97-4110-bcae-62ceaa9d3227)](https://www.educative.io/unlimited?aff=BbLr)
-
 ### 69% Off Educative.io Coupon
 
 AI April Early Bird deals are almost gone! Grab 69% off now and level up your skills with top AI courses. The offer is valid till the end of the April month.
-
-[![Discount button](https://github.com/user-attachments/assets/8f800b8f-9b97-4110-bcae-62ceaa9d3227)](https://www.educative.io/unlimited?aff=BbLr)
 
 ### 1. Code: SAVE20
 
@@ -70,16 +89,13 @@ AI April Early Bird deals are almost gone! Grab 69% off now and level up your sk
 
 * How to Use: Enter the code "EDUCATE50" when purchasing select courses on the site.
 
-[![Discount button](https://github.com/user-attachments/assets/8f800b8f-9b97-4110-bcae-62ceaa9d3227)](https://www.educative.io/unlimited?aff=BbLr)
-
 ### More coupons
 
-* [Blaze.ai Promo Code](https://github.com/Blaze-AI-Discount/coupon)
-* [Dux-soup coupon](https://github.com/Dux-soup/coupon/)
-* [Typeform Discount Code](https://github.com/Typeform-Discount/coupon)
-* [educative coupon](https://github.com/Educative-Discount/coupon/)
-* [Hostinger Coupon Code](https://github.com/Hostinger-Deals/coupon/)
-* [kdspy coupons](https://github.com/KDSPY/coupon/)
-* [everbee promo code](https://github.com/Everbee-Discount/coupon/)
-* [jenni ai promo code](https://github.com/Jenni-AI-Discount/coupon)
-* [se ranking coupon](https://github.com/SE-Ranking/coupon)
+* [Blaze.ai 50% Promo Code](https://github.com/williamssw/Blaze/)
+* [Dux-soup 70% coupon](https://github.com/williamssw/Dux/)
+* [Typeform 50% Discount Code](https://github.com/pauld34rf/Typeform/)
+* [Hostinger 70% Off Coupon Code](https://github.com/pauld34rf/Hostinger/)
+* [kdspy 50% coupons](https://github.com/williamssw/kdspy)
+* [everbee 50% promo code](https://github.com/williamssw/everbee/)
+* [jenni ai 30% promo code](https://github.com/SERankingCoupon/Jenni/)
+* [se ranking 60% coupon](https://github.com/SERankingCoupon/discount/)
