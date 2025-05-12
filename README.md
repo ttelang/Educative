@@ -1,4 +1,4 @@
-# Educative.io Coupon Code & Discount (51% Off)
+# Educative.io Coupon Code & Discount (50% Off)
 
 Claim the latest [Educative coupon codes](https://www.educative.io/unlimited?aff=BbLr) and **save 51% on your plan**.
 
@@ -42,6 +42,10 @@ Want a huge discount on Educative? Here's how to save **up to 80%**:
 * Don’t miss the **29.47% AI April Sale**—it stacks with other deals.
 
 [![Discount button](https://github.com/user-attachments/assets/9a606b6f-c796-4d96-bad1-e3771495cfcc)](https://www.educative.io/unlimited?aff=BbLr)
+
+## [20% OFF] Exclusive Educative DevOps Sale
+
+Educative offers an exclusive **20% discount on standard, premium, and premium plus subscriptions** for a limited time. You can also use this coupon code for the two-year subscription plan.
 
 ## Educative Memorial Day Sale – Flat 33% OFF
 
