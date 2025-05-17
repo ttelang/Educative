@@ -1,26 +1,26 @@
 # Educative.io Coupon Code & Discount (50% Off)
 
-Claim the latest [Educative coupon codes](https://www.educative.io/unlimited?aff=BbLr) and **save 51% on your plan**.
+Claim the latest [Educative coupon codes](https://www.educative.io/unlimited?aff=Bwzv) and **save 51% on your plan**.
 
-[![Discount button](https://github.com/user-attachments/assets/9a606b6f-c796-4d96-bad1-e3771495cfcc)](https://www.educative.io/unlimited?aff=BbLr)
+[![Discount button](https://github.com/user-attachments/assets/9a606b6f-c796-4d96-bad1-e3771495cfcc)](https://www.educative.io/unlimited?aff=Bwzv)
 
 ## 51% Off Educative Coupon For Standard Plan
 
 Get **51% off the Educative Standard Plan**. You’ll pay only $13 each month, billed yearly at $149 instead of $298. This deal gives you full access to over 900 hands-on courses, completion certificates, AI-powered learning features, and the Educative Newsletter. It's a limited-time offer to help you learn faster and boost your skills for half the price.
 
-[![Discount button](https://github.com/user-attachments/assets/9a606b6f-c796-4d96-bad1-e3771495cfcc)](https://www.educative.io/unlimited?aff=BbLr)
+[![Discount button](https://github.com/user-attachments/assets/9a606b6f-c796-4d96-bad1-e3771495cfcc)](https://www.educative.io/unlimited?aff=Bwzv)
 
 ## 50% Off On Educative Premium Plan
 
 Get **50% off the Educative Premium Plan** where you pay just $17 per month when billed annually at $199 instead of $398. This offer includes all the Standard Plan features. You also gain access to over 310 real-world projects, personalised learning paths, monthly AI mock interviews, and tailored interview prep. It’s a great way to boost your skills and get job-ready, now at half the cost.
 
-[![Discount button](https://github.com/user-attachments/assets/9a606b6f-c796-4d96-bad1-e3771495cfcc)](https://www.educative.io/unlimited?aff=BbLr)
+[![Discount button](https://github.com/user-attachments/assets/9a606b6f-c796-4d96-bad1-e3771495cfcc)](https://www.educative.io/unlimited?aff=Bwzv)
 
 ## 50% Off On The Educative Premium Plus Plan
 
 Get 50% off the Educative Premium Plus Plan. Now, pay just $21 per month, billed yearly at $249 instead of $498. This plan includes everything in Premium. You also get access to over 220 AWS Cloud Labs and seven AI mock interviews each month. It’s the best learning experience for serious tech learners, now at half the price.
 
-[![Discount button](https://github.com/user-attachments/assets/9a606b6f-c796-4d96-bad1-e3771495cfcc)](https://www.educative.io/unlimited?aff=BbLr)
+[![Discount button](https://github.com/user-attachments/assets/9a606b6f-c796-4d96-bad1-e3771495cfcc)](https://www.educative.io/unlimited?aff=Bwzv)
 
 ## [30% OFF] Educative.io Summer Sale – Lifetime Discount!
 
@@ -30,7 +30,7 @@ Get 30% off for life on Educative’s premium plans.
 * Works on all premium subscriptions.
 * Limited-time deal – don’t miss out!
 
-[![Discount button](https://github.com/user-attachments/assets/9a606b6f-c796-4d96-bad1-e3771495cfcc)](https://www.educative.io/unlimited?aff=BbLr)
+[![Discount button](https://github.com/user-attachments/assets/9a606b6f-c796-4d96-bad1-e3771495cfcc)](https://www.educative.io/unlimited?aff=Bwzv)
 
 ## How to Get 80% Off on Educative Subscription Plans
 
@@ -41,7 +41,7 @@ Want a huge discount on Educative? Here's how to save **up to 80%**:
 * You may also get a **30% regional discount**, if eligible.
 * Don’t miss the **29.47% AI April Sale**—it stacks with other deals.
 
-[![Discount button](https://github.com/user-attachments/assets/9a606b6f-c796-4d96-bad1-e3771495cfcc)](https://www.educative.io/unlimited?aff=BbLr)
+[![Discount button](https://github.com/user-attachments/assets/9a606b6f-c796-4d96-bad1-e3771495cfcc)](https://www.educative.io/unlimited?aff=Bwzv)
 
 ## [20% OFF] Exclusive Educative DevOps Sale
 
