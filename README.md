@@ -98,7 +98,7 @@ AI April Early Bird deals are almost gone! Grab 69% off now and level up your sk
 * [Blaze.ai 50% Promo Code](https://github.com/williamssw/Blaze/)
 * [Dux-soup 70% coupon](https://github.com/williamssw/Dux/)
 * [Typeform 50% Discount Code](https://github.com/pauld34rf/Typeform/)
-* [Hostinger 70% Off Coupon Code](https://github.com/pauld34rf/Hostinger/)
+* [Hostinger 70% Off Coupon Code](https://github.com/ttelang/Hostinger/)
 * [kdspy 50% coupons](https://github.com/williamssw/kdspy)
 * [everbee 50% promo code](https://github.com/williamssw/everbee/)
 * [jenni ai 30% promo code](https://github.com/SERankingCoupon/Jenni/)
